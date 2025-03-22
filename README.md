@@ -3,7 +3,7 @@
 My journey into the world of industrial engineering is driven by a deep passion for **optimizing systems**, **solving complex problems**, and **using data to make impactful decisions**. I thrive on tackling challenges across a variety of fields, constantly exploring new areas to apply my skills and knowledge.
 
 
-📲 Connect with me on LinkedIn ➡︎ [Kenza Bounoual](https://www.linkedin.com/in/kenza-bounoual/)
+📲 LinkedIn ➡︎ [Kenza Bounoual](https://www.linkedin.com/in/kenza-bounoual/)
 
  ✉ Email ➡︎ [kenzabounoual03@gmail.com]
 
